@@ -25,5 +25,5 @@ Fast Duplicate File Finder
 
 Wise Duplicate Finder
 
-## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/29c2n6ax
-)
+
+## [✔🎉🚀Thanks For Downloading 👍😊](https://tinyurl.com/29c2n6ax)
